@@ -1,2 +1,2 @@
 # talitagoulart.com.br
-http://www.talitagoulart.com.be
+http://www.talitagoulart.com.br
